@@ -21,12 +21,14 @@ With a blend of romantic storytelling, strategic gameplay, and engaging characte
 - **Genre**: Korean dating sim
 - **Available Platforms**: Android, PC (via SteamUnlocked), and iOS
 - **Languages Supported**: Korean and English
+
 ![0827_-ezgif com-optimize](https://github.com/user-attachments/assets/9038d7c6-2b62-4742-a3fc-74d939e716d8)
 
 Set in a charming boarding house, players explore the intertwined lives of Yuman and five distinct female characters, each with unique backstories, personalities, and romantic arcs. The game is lauded for its emotional depth and engaging gameplay mechanics.
 
 ### Storyline
 Yuman has lived a solitary life until fate introduces him to five enchanting women. Together, they navigate a world filled with comedic misunderstandings, romantic revelations, and heartfelt connections. As Yuman, players must balance relationships, solve conflicts, and make choices that lead to various outcomes.
+
 ![0827_2-ezgif com-optimize](https://github.com/user-attachments/assets/24dc04c0-87e3-45ca-974e-e9f28a107618)
 
 ## [Five Hearts Under One Roof APK Download & PC Free Download](https://fiveheartsunderoneroof.com/)
@@ -40,6 +42,7 @@ Yuman has lived a solitary life until fate introduces him to five enchanting wom
 3. **Community Engagement**: Platforms like [Reddit](https://reddit.com) have been buzzing with discussions about gameplay tips, cast details, and romantic endings.
 4. **Easy Accessibility**: Available for **download** on Android and PC platforms, including from sites like **SteamUnlocked**.
 5. **Diverse Characters**: The heroines, including **gran dong** and **dong geu-ran**, bring different dynamics to the story.
+
 ![WX20241126-120448@2x](https://github.com/user-attachments/assets/7039822e-dbe0-4c02-9192-dbe38f1b244c)
 
 ---
