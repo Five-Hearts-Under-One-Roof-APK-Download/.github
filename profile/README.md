@@ -9,9 +9,9 @@
 ## What is "Five Hearts Under One Roof"?
 
 "**Five Hearts Under One Roof**" is a captivating Korean dating sim game where players navigate a vibrant love story involving five unique heroines. This immersive interactive video game allows players to step into the shoes of **Yuman**, the protagonist, who transitions from living alone to managing a lively boarding house filled with love and drama. 
+![WX20241126-115725@2x](https://github.com/user-attachments/assets/48e5eb12-0d52-4fd3-b3c5-17ee3f04ff92)
 
 With a blend of romantic storytelling, strategic gameplay, and engaging character interactions, "Five Hearts Under One Roof" has become a trending topic among fans of dating simulation games.
-![6baa1aadba95a866dd9743f18532bdfa52875e20-ezgif com-optimize](https://github.com/user-attachments/assets/41590bf0-f8b3-486b-88be-ab4fec08e1a8)
 
 ---
 
@@ -162,3 +162,5 @@ By following this guide, players can fully enjoy "Five Hearts Under One Roof" an
 ![WX20241126-115908@2x](https://github.com/user-attachments/assets/a9685b87-e9cc-426d-b80f-3cfa8218be01)
 ![WX20241126-120329@2x](https://github.com/user-attachments/assets/4d5777a7-7125-41af-915c-dff87f385fbf)
 ![WX20241126-120359@2x](https://github.com/user-attachments/assets/9e003af7-3470-4260-999c-f5dbd856c12e)
+![6baa1aadba95a866dd9743f18532bdfa52875e20-ezgif com-optimize](https://github.com/user-attachments/assets/41590bf0-f8b3-486b-88be-ab4fec08e1a8)
+
