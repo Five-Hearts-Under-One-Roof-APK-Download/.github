@@ -11,6 +11,7 @@
 "**Five Hearts Under One Roof**" is a captivating Korean dating sim game where players navigate a vibrant love story involving five unique heroines. This immersive interactive video game allows players to step into the shoes of **Yuman**, the protagonist, who transitions from living alone to managing a lively boarding house filled with love and drama. 
 
 With a blend of romantic storytelling, strategic gameplay, and engaging character interactions, "Five Hearts Under One Roof" has become a trending topic among fans of dating simulation games.
+![6baa1aadba95a866dd9743f18532bdfa52875e20-ezgif com-optimize](https://github.com/user-attachments/assets/41590bf0-f8b3-486b-88be-ab4fec08e1a8)
 
 ---
 
@@ -20,11 +21,13 @@ With a blend of romantic storytelling, strategic gameplay, and engaging characte
 - **Genre**: Korean dating sim
 - **Available Platforms**: Android, PC (via SteamUnlocked), and iOS
 - **Languages Supported**: Korean and English
+![0827_-ezgif com-optimize](https://github.com/user-attachments/assets/9038d7c6-2b62-4742-a3fc-74d939e716d8)
 
 Set in a charming boarding house, players explore the intertwined lives of Yuman and five distinct female characters, each with unique backstories, personalities, and romantic arcs. The game is lauded for its emotional depth and engaging gameplay mechanics.
 
 ### Storyline
 Yuman has lived a solitary life until fate introduces him to five enchanting women. Together, they navigate a world filled with comedic misunderstandings, romantic revelations, and heartfelt connections. As Yuman, players must balance relationships, solve conflicts, and make choices that lead to various outcomes.
+![0827_2-ezgif com-optimize](https://github.com/user-attachments/assets/24dc04c0-87e3-45ca-974e-e9f28a107618)
 
 ---
 
@@ -35,6 +38,7 @@ Yuman has lived a solitary life until fate introduces him to five enchanting wom
 3. **Community Engagement**: Platforms like [Reddit](https://reddit.com) have been buzzing with discussions about gameplay tips, cast details, and romantic endings.
 4. **Easy Accessibility**: Available for **download** on Android and PC platforms, including from sites like **SteamUnlocked**.
 5. **Diverse Characters**: The heroines, including **gran dong** and **dong geu-ran**, bring different dynamics to the story.
+![WX20241126-120448@2x](https://github.com/user-attachments/assets/7039822e-dbe0-4c02-9192-dbe38f1b244c)
 
 ---
 
@@ -49,6 +53,7 @@ Yuman has lived a solitary life until fate introduces him to five enchanting wom
 | **Create Profile** | Set up Yuman's profile and customize initial preferences.                        |
 | **Meet Characters**| Interact with the five heroines and learn about their stories.                   |
 | **Make Choices**   | Decisions you make impact relationships and game outcomes.                      |
+![WX20241126-120342@2x](https://github.com/user-attachments/assets/200c2cd0-8611-4c76-aa66-ac39bc26af15)
 
 ---
 
@@ -63,6 +68,7 @@ Yuman has lived a solitary life until fate introduces him to five enchanting wom
 | **Level 3**      | Develop romantic connections.               | Dong Geu-ran                       |
 | **Level 4**      | Deepen relationships through mini-games.    | All five heroines                  |
 | **Level 5**      | Decide on a romantic partner.               | Final choice influencing ending    |
+![WX20241126-114530@2x](https://github.com/user-attachments/assets/44b7312b-98ac-4c71-933d-8319ff9ba88b)
 
 ### Key Features
 
@@ -71,6 +77,7 @@ Yuman has lived a solitary life until fate introduces him to five enchanting wom
 - **Multiple Endings**: Choices influence Yuman's fate with each heroine.
 - **High-Quality Graphics**: Immersive visuals bring the story to life.
 - **Cast Voice Acting**: Featuring the talented **gran dong actress**.
+![WX20241126-114641@2x](https://github.com/user-attachments/assets/94612953-c9bf-4460-b2e1-ab31ed531a66)
 
 ---
 
@@ -83,9 +90,11 @@ Yuman has lived a solitary life until fate introduces him to five enchanting wom
 | **Gran Dong**    | 고 말숙             | The cheerful and optimistic heroine.       |
 | **Dong Geu-ran** | rvn1015             | A mysterious and reserved character.       |
 | **Additional Cast** | Various Korean Stars | Featuring voices of **donggeuran** talents. |
+![WX20241126-114712@2x](https://github.com/user-attachments/assets/9df28675-bd7f-4048-b0c9-08cbe53d876b)
 
 ### Why is the Cast Significant?
 The **Five Hearts Under One Roof actress cast** brings authenticity and emotion to the characters, enhancing the game’s immersive appeal.
+![WX20241126-114736@2x](https://github.com/user-attachments/assets/b6af63f3-1c64-4403-ac6b-6c01e77c9529)
 
 ---
 
@@ -98,6 +107,7 @@ The **Five Hearts Under One Roof actress cast** brings authenticity and emotion 
 3. **Focus on Dialogue**: Choose responses that align with each character’s personality.
 4. **Save Progress Often**: Use multiple save slots to revisit critical decisions.
 5. **Community Help**: Engage with the [Five Hearts Under One Roof](https://fiveheartsunderoneroof.com/) for insights.
+![WX20241126-114820@2x](https://github.com/user-attachments/assets/3a8727c7-92d8-4257-81e2-208642d9bc0d)
 
 ---
 
@@ -125,7 +135,13 @@ The **Five Hearts Under One Roof actress cast** brings authenticity and emotion 
 | Can I play offline?                                 | Yes, once downloaded.                                                               |
 | Is there a guide available?                         | Detailed guides can be found on [Five Hearts Under One Roof](https://fiveheartsunderoneroof.com/). |
 | Are there Easter eggs?                              | Yes, explore the game thoroughly to find hidden surprises.                          |
+![WX20241126-114852@2x](https://github.com/user-attachments/assets/48b2df63-fcf7-4250-b6d6-1f5432cc1e7d)
 
 ---
 
 By following this guide, players can fully enjoy "Five Hearts Under One Roof" and delve into the rich, romantic world of Yuman and his heroines. Start your adventure today by downloading the APK from the official website!
+![WX20241126-114907@2x](https://github.com/user-attachments/assets/96908473-954b-4ead-9411-627f7792368d)
+![WX20241126-114831@2x](https://github.com/user-attachments/assets/088795f2-4301-4cbc-84cb-4f870b4ddee6)
+![WX20241126-114929@2x](https://github.com/user-attachments/assets/5e1cde33-ad9e-4eff-9e82-558b747c6184)
+![WX20241126-115041@2x](https://github.com/user-attachments/assets/cbc5abdf-6e97-4a13-81d3-80f537995c37)
+![WX20241126-115019@2x](https://github.com/user-attachments/assets/2dd3f16c-53dd-414e-8960-895e79386d3e)
